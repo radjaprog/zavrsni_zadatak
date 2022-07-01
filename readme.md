@@ -1,3 +1,1 @@
-zavrsni zadatak:
-zadatak 1. odradjen
-zadatak 2. zapocet i delimicno odradjen
+zavrsni zadatak: odradjeno sve do 12og. 12ti takodje delimicno odradjen. Srdacan pozdrav!
